@@ -1,1 +1,1 @@
-Welcome to sweatcoin.XYZ
+Welcome to Sweatcoin.XYZ
